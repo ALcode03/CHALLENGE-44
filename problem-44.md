@@ -1,0 +1,1 @@
+![alt text](problem-40.jpg) ![alt text](problem-41.jpg)
